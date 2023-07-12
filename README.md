@@ -8,7 +8,7 @@ I beleive that real healing is possible, and through tools like the Internal Fam
 
 I have been a daily meditator since 2017, and try to attend a retreat once a year. In 2023, I started  teaching Saturday mindfulness classes to women transitioning out of homelessness. I took Derek Scott's IFSCA stepping stones course. I am also the teacher coordinator for the Sunday night sangha, Downtown Dharma, in Washington D.C.
 
-![image](me_woods.jpg "")
+![image](/joshuamalina.github.io/docs/assets/me_woods.jpg)
 
 ## How it works
 
