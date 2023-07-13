@@ -6,7 +6,7 @@ Hi! I'm Josh. I am an Internal Family Systems (IFS) Coach and Mindfulness teache
 
 I believe that real healing is possible, and through tools like the Internal Family Systems model, and mindfulness based practices, we can make real progress in establishing space, freedom and growth in our minds and in our lives.
 
-I have been a daily meditator since 2017, and in 2023, I started teaching Saturday mindfulness classes to women transitioning out of homelessness. I took Derek Scott's IFSCA stepping stones course, and Bonnie Weiss' IFS course on healing the inner critic. I am the teacher coordinator for the Sunday night sangha, Downtown Dharma, in Washington D.C., and the host of a monthly podcast about mental health, the [Anxiety Book Club](www.anxietybookclub.com).
+I have been a daily meditator since 2017, and in 2023, I started teaching Saturday mindfulness classes to women transitioning out of homelessness. I took Derek Scott's IFSCA stepping stones course, and Bonnie Weiss' IFS course on healing the inner critic. I am the teacher coordinator for the Sunday night sangha, Downtown Dharma, in Washington D.C., and the host of a monthly podcast about mental health, the [Anxiety Book Club](https://www.anxietybookclub.com).
 
 ![image](docs/assets/me_woods.jpg)
 
