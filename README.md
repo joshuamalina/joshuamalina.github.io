@@ -16,7 +16,7 @@ I have been a daily meditator since 2017, and try to attend a retreat once a yea
 
 In 2023, I started teaching Saturday mindfulness classes to women transitioning out of homelessness. I also serve as the teacher coordinator for the Sunday night sangha, [Downtown Dharma](https://www.downtowndharmadc.org/), in Washington D.C.
 
-![image](me_woods.jpg "")
+![image](docs/assets/me_woods.jpg)
 
 ## How it works
 
