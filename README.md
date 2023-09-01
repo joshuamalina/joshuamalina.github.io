@@ -27,3 +27,7 @@ I charge $75 per 50 minute session, but offer a sliding scale for clients who ca
 ## Getting Started
 
 Send me an email at joshuamalina@gmail.com to chat and find a time to meet.
+
+## Testimonials
+
+*Working with Josh as my IFS practitioner has been an amazing experience. With his guidance, I've been able to learn so much about myself and the parts of me that I never really understood before. I highly recommend Josh to anyone who wants to deepen their self-awareness and embark on a journey of personal growth.* --Olivia
