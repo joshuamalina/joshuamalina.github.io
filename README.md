@@ -10,8 +10,9 @@ I have been a daily meditator since 2017, and try to attend a retreat once a yea
 
 ### Certifications and Trainings
 
-- Bonnie Weiss’ Inner Critic IFS Course (Bonnie Weiss, May 2022)
+- IFSCA IFS Advanced Weekend (Gustavo Ribeiro de Mello, October 2023)
 - IFSCA 16 Week Comprehensive IFS course (Melissa Galbraith, August 2023)
+- Bonnie Weiss’ Inner Critic IFS Course (Bonnie Weiss, May 2022)
 
 
 In 2023, I started teaching Saturday mindfulness classes to women transitioning out of homelessness. I also serve as the teacher coordinator for the Sunday night sangha, [Downtown Dharma](https://www.downtowndharmadc.org/), in Washington D.C.
