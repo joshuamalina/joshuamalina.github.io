@@ -32,3 +32,5 @@ Send me an email at joshuamalina@gmail.com to chat and find a time to meet.
 ## Testimonials
 
 *Working with Josh as my IFS practitioner has been an amazing experience. With his guidance, I've been able to learn so much about myself and the parts of me that I never really understood before. I highly recommend Josh to anyone who wants to deepen their self-awareness and embark on a journey of personal growth.* --Olivia
+
+*Josh's coaching, guidance, and introduction of IFS to me provided credence to a way we all speak about ourselves naturally, that we have parts of ourselves with their own feelings, fears, and dreams. Josh provided a calm and welcoming space to intentionally invite these parts forward for the first time and they opened up, some willing, some begrudgingly. I recommend Josh guide you through IFS so you may add a long lever in your mental health and self reflection toolboxes.* --Diran
