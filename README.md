@@ -25,7 +25,7 @@ I charge $75 per 50 minute session, but offer a sliding scale for clients who ca
 
 ## Getting Started
 
-Send me an email at joshuamalina@gmail.com to chat and find a time to meet, or book a free consultation through my calendly: https://calendly.com/anxietybookclub
+Send me an email at [joshuamalina@gmail.com](mailto:joshuamalina@gmail.com) to chat and find a time to meet, or book a free consultation through my [calendly](https://calendly.com/anxietybookclub).
 
 ## Testimonials
 
