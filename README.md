@@ -6,8 +6,6 @@ Hi! I'm Josh. I am a mental health coach specializing in Internal Family Systems
 
 I believe that real healing is possible, and through tools like Internal Family Systems and mindfulness based practices, we can make real progress in establishing space, freedom and growth in our minds and in our lives.
 
-I have been a daily meditator since 2017, and try to attend a retreat once a year.
-
 ### Certifications and Trainings
 
 - IFSCA IFS Advanced Weekend (Gustavo Ribeiro de Mello, October 2023)
@@ -19,13 +17,13 @@ I have been a daily meditator since 2017, and try to attend a retreat once a yea
 
 ## How it works
 
-Most sessions take place online through zoom. 
+All sessions take place online through zoom. 
 
-I charge $75 per 50 minute session, but offer a sliding scale for clients who cannot afford this rate. 
+I charge $55 per 50 minute session, but offer a sliding scale for clients who cannot afford this rate. 
 
 ## Getting Started
 
-Send me an email at [joshuamalina@gmail.com](mailto:joshuamalina@gmail.com) to chat and find a time to meet, or book a free consultation through my [calendly](https://calendly.com/anxietybookclub).
+Book a free consultation through my [calendly](https://calendly.com/anxietybookclub) or send me an email at [joshuamalina@gmail.com](mailto:joshuamalina@gmail.com) for any questions you may have.
 
 ## Testimonials
 
